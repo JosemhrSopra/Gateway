@@ -1,0 +1,1 @@
+# GateWay para aseguradora
